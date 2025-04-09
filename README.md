@@ -1,4 +1,3 @@
-# MEASPUTTIVIREAK
 # Measputtivireak's Resume
 
 ## About Me
